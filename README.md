@@ -8,6 +8,7 @@ I started my professional career as an English teacher and worked for different 
 
 I would love to be a part of projects that make a difference 😊
 
-📫 You can find me on [LinkedIn]
-- ⚡ Fun fact: ...
--->
+📫 You can find me on [LinkedIn](www.linkedin.com/in/victoria-gonzález-rodríguez-21522210a)
+
+⚡ Fun fact: One of my hobbies is making dressing gowns from second-hand clothes! 👗 
+
